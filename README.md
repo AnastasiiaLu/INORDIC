@@ -1,6 +1,6 @@
 # INORDIC
 
-Anastasiia Lu's project.
+Anastasiia's project.
 TEST...
 New!!!!!!!!!!!!!!!!!1
 WHY???
